@@ -1,4 +1,4 @@
-#  Chaos Theory: Unlocking the Secrets of Unpredictability 
+# Chaos Theory: Unlocking the Secrets of the Butterfly Effect!
 
 Watch the video on YouTube: https://www.youtube.com/watch?v=jAHB0Zrs_hk
 
